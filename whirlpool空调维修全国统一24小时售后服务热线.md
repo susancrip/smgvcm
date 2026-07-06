@@ -1,0 +1,258 @@
+whirlpool空调全国售后服务电话：400 -960 -9605(安全认证）
+whirlpool空调全国24小时各售后受理客服中心
+whirlpool空调各市区24小时售后客服热线：（1）400 -960 -9605(官网认证） （2）400 -960 -9605
+whirlpool空调全国24小时售后服务维修网点
+7天24小时人工电话400 -960 -9605客服为您服务、whirlpool空调售后服务团队在调度中心的统筹调配下，
+线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+whirlpool空调24小时售后服务热线上线（2026最新公告）
+whirlpool空调售后服务电话：400 -960 -9605
+whirlpool空调售后24小时客服热线：400 -960 -9605
+whirlpool空调公司主营whirlpool空调维修 →whirlpool空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -960 -9605、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，whirlpool空调服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、whirlpool空调售后维修电话：400 -960 -9605
+whirlpool空调24小时全国推出各售后受理客服中心(2026上线)
+whirlpool空调全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+whirlpool空调贴心升级服务，现推出全国 24 小时服务热线 400 -960 -9605。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显whirlpool空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+whirlpool空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+whirlpool空调24小时售后客服热线：(1)400 -960 -9605或  400 -960 -9605
+
+
+
+7天24小时人工电话400 -960 -9605客服为您服务。
+
+
+
+whirlpool空调售后服务团队在调度中心的统筹调配下(1)400 -960 -9605，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# whirlpool空调常见故障代码维修指南
+
+whirlpool空调故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， whirlpool空调就能正常运行，为您营造舒适环境。 whirlpool空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+whirlpool空调全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修whirlpool空调400 -960 -9605机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+whirlpool空调售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -960 -9605
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+whirlpool空调贴心升级服务，现推出全国 24 小时服务热线 400 -960 -9605。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显whirlpool空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+whirlpool空调全国服务网点查询：
+?北京市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日全新上线），点击查询：https://github.com/epusierio/xenuiz/commit/396155063489fab89328d1b42813afaf20914b03
+。
+南京市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日官网更新），点击查询：https://github.com/noblepalm7/mqggeo/commit/1ca649188e4201bca2f5fb0a1217c7826a77b6e0
+。
+秦皇岛市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日全新升级），点击查询：https://github.com/bitehead7/vvfate/commit/fecbc7c5954556db28cac9bc6a1b987fcf4317de
+。
+珠海市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日最新更新），点击查询：https://github.com/heframetot/qpzhle/commit/7a582e550257f96a9491745792b89d3f9106158c
+。
+安康市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日最新推出），点击查询：https://github.com/damuid/igorkd/commit/f16230e86a9f1115a9bdd75441cc2c7e01702d01
+。
+安庆市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日正式发布），点击查询：https://github.com/tresendall/ocgxju/commit/ee4aa1b96d01c3ff9b925594524517a166353cd7
+。
+鞍山市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日全新上线），点击查询：https://github.com/merligu201/xklisd/commit/73a375b69a54f209d22c1b183f6935d823ec9bed
+。
+安阳市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日统一上线），点击查询：https://github.com/slashthatt/gxyldr/commit/1941ecede41d5eb86ee3fd4b0de22eb1a2dc9dca
+。
+巴中市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日正式更新），点击查询：https://github.com/lettyisp/bfjdzq/commit/953e1a5eca7f5f75a8cac1f0002c212a82c47ce4
+。
+百色市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日官网更新），点击查询：https://github.com/bghinterni/dcmsnr/commit/0c109f6a6854c5289bee4fbcb7a63b44396bb338
+。
+蚌埠市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日更新升级），点击查询：https://github.com/jthairlist/xxrxko/commit/3e6c4e7fc070d032fb412192e4bc42aa915cf6c3
+。
+保定市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日统一上线），点击查询：https://github.com/vipulzi/ynavai/commit/0c343a6f6d103aefb5ae2bba5fc8bc64453300a4
+。
+宝鸡市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日官网发布），点击查询：https://github.com/yogurtzoll/tortma/commit/b0accc919f3ccca1ea1b7b5bf2724fb874e4bbec
+。
+保山市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日最新推出），点击查询：https://github.com/chetanawri/caounm/commit/bd823916f35ae42658d526b277acb5c6b4577290
+。
+包头市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日统一更新），点击查询：https://github.com/jucyotahil/ijbdgi/commit/d00c261a3ffe42209400d574b477023b818131a6
+。
+北海市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日正式推出），点击查询：https://github.com/siadmcdona/uzjpkp/commit/83b467a61156a26e2e34ce6fe242441f0e4bf3b1
+。
+本溪市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日全新公布），点击查询：https://github.com/naulic06/ytndce/commit/41cff8eaa89c7989f6727fae80c8e1287280d75e
+。
+滨州市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日官网更新），点击查询：https://github.com/cybersrobi/snxzrn/commit/8ddc412f3f491a532522770272a432f483756096
+。
+博罗市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日全新升级），点击查询：https://github.com/ariaruylen/dppbmr/commit/89646ee52c51c82bd08ec7fe54ba7e7adbc24c55
+。
+沧州市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日官网公布），点击查询：https://github.com/alexatums/rwgvqt/commit/b6c601858599f8c0c65be7f356f9c9f4bc61a8c2
+。
+长春市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日最新更新），点击查询：https://github.com/2384229883/efeqsh/commit/ec41984ab99c390ece62d33dea97ed6b94587f52
+。
+常德市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日公布上线），点击查询：https://github.com/cookedc/tgswix/commit/8bbfbf5eb22636c4aa560cb5617fd515cf155c35
+。
+长葛市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日公布上线），点击查询：https://github.com/bulb00male/uleyws/commit/5319e42cf08e8192e02404974b5be06b5c5518a0
+。
+长沙市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日官网发布），点击查询：https://github.com/hannahidde/bnzdaw/commit/fab474a56708e5cccccb50d72db9713089563368
+。
+常熟市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日公布升级），点击查询：https://github.com/crawwe/oanzmh/commit/78e55b1ab3a82351bafa82bbc82e321aba9e71f7
+。
+长兴市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日公布上线），点击查询：https://github.com/sepinthepw/typarm/commit/61e3cad7d1ad06fd7970cf9cb8e0396cd2643b28
+。
+长治市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日公布升级），点击查询：https://github.com/breath17ra/hjtsln/commit/36c3f57821dd63fe48b51a6b4eca81a7e018dcef
+。
+常州市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日全新上线），点击查询：https://github.com/blade2315/bowlto/commit/ebf217961da769b83258fb4b76c31e0b009b0b17
+。
+巢湖市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日更新升级），点击查询：https://github.com/nupton6kir/ayzdpv/commit/40f752b01600556675779e6c314862fd02ee1635
+。
+朝阳市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日官网上线），点击查询：https://github.com/cybersrobi/snxzrn/commit/ce1cde4cd4f3f6cc535c7438f1da4ae94d17f02c
+。
+潮州市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日最新推出），点击查询：https://github.com/2384229883/efeqsh/commit/0e8d8d04566d5467c186657c3deeb9ad0370b540
+。
+郴州市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日全新升级），点击查询：https://github.com/lettyisp/bfjdzq/commit/7f418578700325756943ea0bfa6879a615d59d67
+。
+承德市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日公布升级），点击查询：https://github.com/yogurtzoll/tortma/commit/17b756b33e07a26d94958cf10078348c502cc9ce
+。
+成都市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日最新更新），点击查询：https://github.com/blade2315/bowlto/commit/640226dff1384232df02d399c97113eedcf4d7ac
+。
+池州市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日全新上线），点击查询：https://github.com/breath17ra/hjtsln/commit/cba74fd62ed64664fc81d8a167c0d1fdf109c892
+。
+崇左市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日正式发布），点击查询：https://github.com/andyteston/ruyejr/commit/0314a24d32805616d921f6b64b3eff3ff911b3be
+。
+滁州市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日更新升级），点击查询：https://github.com/markmaneil/nlpfrp/commit/9f2fb9c4d63a7ad9926230be0f069bf7610a4948
+。
+慈溪市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日正式推出），点击查询：https://github.com/crawwe/oanzmh/commit/8a5c31f7b6b86f43128f0a9ea11b0bd3fee675df
+。
+大丰市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日更新升级），点击查询：https://github.com/boostenwk/gjtqqh/commit/0dbc2200ec20b787fa0e7c3ed8eae5b4712b2f3a
+。
+大理市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日全新公布），点击查询：https://github.com/cookedc/tgswix/commit/68247a9d99f51981c1eaf8f10130a24043baa36b
+。
+大连市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日正式上线），点击查询：https://github.com/hannahidde/bnzdaw/commit/024054aed7160f62b91e4e13a6a4ccf3e6ea1303
+。
+大庆市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日最新更新），点击查询：https://github.com/iayrix/qhdbpx/commit/86d03d9c2917c0e3c51263f6c41fbb4ef5c0b72f
+。
+大同市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日最新推出），点击查询：https://github.com/nupton6kir/ayzdpv/commit/6ddbcb64de719df529f1eaa2796e67cf87c4ebb4
+。
+达州市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日官网发布），点击查询：https://github.com/samchala/mflmbd/commit/eaad3d62080cd93ad729741cfae9448641c7d198
+。
+丹东市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日最新推出），点击查询：https://github.com/thomasviol/hkucuj/commit/64ed678e779529219912411adca6f605965a48b3
+。
+德清市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日全新公布），点击查询：https://github.com/alexatums/rwgvqt/commit/7b6204a0ed510267acb487a4f149308595d2de9e
+。
+德阳市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日官网公布），点击查询：https://github.com/hugueddems/laelwr/commit/923bd99468dfd873bf64900d6140cecef57881e9
+。
+德州市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日最新更新），点击查询：https://github.com/damuid/igorkd/commit/fc20988d51ee5ff6632d869a13582a6598d2377c
+。
+定州市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日官网发布），点击查询：https://github.com/parthdc/nflcon/commit/d2234f32f5fd46b65339f0f9275221da850680b3
+。
+东海市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日统一发布），点击查询：https://github.com/melsantex/tlpduv/commit/01747a283c2173dea12b863898e82c92cc65abf5
+。
+东台市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日最新推出），点击查询：https://github.com/susancrip/smgvcm/commit/46531ab6f6da56937d548d57426a1665ee8b6121
+。
+东营市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日公布上线），点击查询：https://github.com/azenbe/dkwblk/commit/4289f1293e588a8128afd03bee65ba83f9b69ba3
+。
+东莞市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日全新上线），点击查询：https://github.com/stevievez/cylcgv/commit/ca75e83f42bf8f9f4aa34fcd1300acaf9d13c0d1
+。
+鄂尔市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日统一上线），点击查询：https://github.com/heframetot/qpzhle/commit/610587a46883245066f36da1dfaf6adc8efa3806
+。
+鄂州市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日正式更新），点击查询：https://github.com/epusierio/xenuiz/commit/bf9baaf50a548332dd607c3712644c64b71e2bb3
+。
+恩施市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日官网上线），点击查询：https://github.com/pinact425/rnkbtb/commit/8e1715c3c1bc830dbb824dae678d37828ede0214
+。
+防城港市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日统一发布），点击查询：https://github.com/todiation/cikpuk/commit/8372da7975957afd450cdf1d10fd13731e1d652d
+。
+佛山市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日统一升级），点击查询：https://github.com/nexoslevic/ooivug/commit/5632ce915607043ad248b64220599fd6f8b79fb5
+。
+抚顺市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日正式更新），点击查询：https://github.com/theexppoin/vubhie/commit/64246866c88a290dcaca263f78ab5ff9119bf573
+。
+阜新市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日最新推出），点击查询：https://github.com/cameronxoc/gpzorg/commit/e5d4af1bb85c3319fee7d16feffd8f2d57e5b89f
+。
+阜阳市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日统一更新），点击查询：https://github.com/noblepalm7/mqggeo/commit/a89c7b7b3227d5f07b00edd03cbd19d6d3288c25
+。
+抚州市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日统一上线），点击查询：https://github.com/rickygeorg/jkvrxz/commit/3c5035c6da03ef67636a7af2f9b4f7630f191911
+。
+福州市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日正式更新），点击查询：https://github.com/slashthatt/gxyldr/commit/360d2b1f5cb5206148ba0dfe05251816445e1d01
+。
+赣州市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日官网更新），点击查询：https://github.com/anodeepset/honnwc/commit/867cd3f5f51b6ee412d016620a0e2e70efadd7b7
+。
+馆陶市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日全新升级），点击查询：https://github.com/yuukizo/eyxacs/commit/6f1df086e5e46cf9c4389f9102a93f424920ca90
+。
+广安市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日正式推出），点击查询：https://github.com/osekylrpoh/jrydfe/commit/99257d1b733eb457b8377aebb3f1e6ae9d4c5bf2
+。
+广元市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日正式推出），点击查询：https://github.com/naulic06/ytndce/commit/4942c6f32d0947150cbc5809f3f3628af38c230b
+。
+广州市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日统一升级），点击查询：https://github.com/vipulzi/ynavai/commit/1137731a6099b9a53e6e76e001468d4b100dbc21
+。
+贵港市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日统一升级），点击查询：https://github.com/andyteston/ruyejr/commit/a83427348bc96aae6351cd5ea906ea3238861280
+。
+桂林市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日正式上线），点击查询：https://github.com/bghinterni/dcmsnr/commit/66ef64ed4b40112d7411a7f07caf0a472d11e5f5
+。
+贵阳市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日正式发布），点击查询：https://github.com/yogurtzoll/tortma/commit/a9a6428adbc6b555e23284f7dc5a9bbeca03f9f8
+。
+哈尔滨市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日统一升级），点击查询：https://github.com/iayrix/qhdbpx/commit/d8a2053ddc9eaaa247a310766863b4032413edeb
+。
+海安市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日正式发布），点击查询：https://github.com/samchala/mflmbd/commit/6dec00ae202dd3f469dff49271e587d0a92b522b
+。
+海口市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日统一更新），点击查询：https://github.com/crawwe/oanzmh/commit/65283b981a232469a34ed77bfc07b25be1624cdd
+。
+海门市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日统一发布），点击查询：https://github.com/thomasviol/hkucuj/commit/d258646f6b848c64de87492cd3bdac7b1fb77501
+。
+海宁市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日官网升级），点击查询：https://github.com/stevievez/cylcgv/commit/f27c679d2f5270990475f975d0a5d94d023cb8ee
+。
+邯郸市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日公布升级），点击查询：https://github.com/susancrip/smgvcm/commit/bbbcef4bff863fe966b94c90213972441cf17447
+。
+汉中市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日官网升级），点击查询：https://github.com/damuid/igorkd/commit/cb027e5cd6e453dcd5bc2160b604831c49f73795
+。
+杭州市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日全新升级），点击查询：https://github.com/alexatums/rwgvqt/commit/14a09694c0f2acec97dea31a6811faa695122070
+。
+鹤壁市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日统一升级），点击查询：https://github.com/azenbe/dkwblk/commit/2210896291d4d9cc0cb5d588382a87f7b885942b
+。
+河池市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日统一发布），点击查询：https://github.com/parthdc/nflcon/commit/4451c64d16463b288182f7cba6265f5a881d8832
+。
+合肥市whirlpool空调售后服务电话：400 -960 -9605（2026年07月06日正式发布），点击查询：https://github.com/hugueddems/laelwr/commit/c835df50645f436662960a73e60be9418ab2bd04
+。
+河源市whirlpool空调售后服务电话：400 -960 -9605{变
